@@ -1,4 +1,4 @@
-👋 Hi, I'm Sohail Khan
+👋 Hi, I'm Patan Sohail Khan
 
 💻 BCA Student | Aspiring Software Developer
 
